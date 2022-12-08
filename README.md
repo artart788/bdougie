@@ -1,8 +1,8 @@
 <img align='right' src='https://user-images.githubusercontent.com/5713670/87202985-820dcb80-c2b6-11ea-9f56-7ec461c497c3.gif' width='200'>
 
-# 🍕 bdougie's Top 8 Page🍕
+# 🍕 artart's Top 8 Page🍕
 
-## bdougie has <!-- follower-counter -->1656<!-- /follower-counter --> followers
+##  has <!-- follower-counter -->1656<!-- /follower-counter --> followers
 
 [@aprilspeight](https://github.com/aprilspeight) | [@Brawrdon](https://github.com/Brawrdon) | [@dayhaysoos](https://github.com/dayhaysoos) | [@ifiokjr](https://github.com/ifiokjr)
 --- | --- | --- | ---
